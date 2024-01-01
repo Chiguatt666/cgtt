@@ -1,6 +1,6 @@
 吃瓜天堂最新地址
 
-免翻墙入口：https://cghv1.cc
+免翻墙入口：https://cghv2.cc
 
 永久入口需翻墙：https://cgtt.cc
 
