@@ -1,6 +1,6 @@
 吃瓜天堂最新地址
 
-免翻墙入口：https://www.cgtt01.com
+免翻墙入口：https://www.cgtt02.com
 
 永久入口需翻墙：https://cgtt.cc
 
