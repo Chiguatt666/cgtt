@@ -1,10 +1,10 @@
 吃瓜天堂最新地址
 
-免翻墙入口：https://www.cgtt03.me
+免翻墙入口：https://www.cgtt05.me
 
 永久入口需翻墙：https://cgtt.me
 
-官方免费Q群:http://k.mgrzz93.cn/s/XLzU
+官方免费Q群:http://url45.co/1188
 
 官方推特：https://twitter.com/tiantangcg321
 
